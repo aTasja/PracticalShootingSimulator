@@ -17,4 +17,4 @@
 
 ## Contacts 
 
-e-mail: shatova_app@mail.ru
+e-mail: support@pssgame.xyz
